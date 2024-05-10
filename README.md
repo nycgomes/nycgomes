@@ -1,0 +1,4 @@
+- 👋 0i, eu sou a @nycgomes
+- 👀 seja bem vinda!
+- 🌱 oii!
+- 💞️oii nyc
